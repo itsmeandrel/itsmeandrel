@@ -8,5 +8,5 @@
 <br/><div align="center"> 
 
 [Straw](https://itsmeandrel.straw.page)
-[Ata](andrez.atabook.org)
+; [Ata](andrez.atabook.org)
 
