@@ -8,8 +8,5 @@
 <br/><div align="center"> 
 
 [Straw](https://itsmeandrel.straw.page)
-
-<br/><div align="center"> 
-
 [Ata](andrez.atabook.org)
 
