@@ -7,6 +7,6 @@
   
 <br/><div align="center"> 
 
-[Straw](https://itsmeandrel.straw.page)
+[Straw](https://spiritandsuchconsultation.straw.page)
 ; [Ata](https://andrez.atabook.org/)
 
