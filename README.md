@@ -1,7 +1,7 @@
 
 
 <br/><div align="center">
-  <img src="https://media1.tenor.com/m/hiuaXgP5wBkAAAAC/reigen-arataka.gif">
+  <img src="https://media1.tenor.com/m/SWWyA88XDTQAAAAC/mob-psycho100-arataka-reigen.gif">
 </div>
 
   
