@@ -5,6 +5,7 @@
 </div>
 <br/><div align="center">
 art by me
+  
 [Straw](https://spiritandsuchconsultation.straw.page)
 ; [Ata](https://andrez.atabook.org/)
 
