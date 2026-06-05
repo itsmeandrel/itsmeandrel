@@ -1,7 +1,7 @@
 
 
 <br/><div align="center">
-  <img src="https://i.pinimg.com/736x/fe/8b/11/fe8b112c03a521b0d5ccd55c20f89583.jpg">
+  <img src="https://github.com/itsmeandrel/itsmeandrel/blob/main/Untitled1904_20260605213707.png">
 </div>
 
   
