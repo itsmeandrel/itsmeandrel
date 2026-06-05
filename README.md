@@ -4,7 +4,7 @@
   <img src="https://github.com/itsmeandrel/itsmeandrel/blob/main/Untitled1904_20260605213707.png">
 </div>
 
-  Envin 
+  
 <br/><div align="center"> 
 
 [Straw](https://spiritandsuchconsultation.straw.page)
