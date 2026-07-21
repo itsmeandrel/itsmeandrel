@@ -1,7 +1,7 @@
 
 
 <br/><div align="center">
-  <img src="0413bc7127e531d60c001dd3119741e4.jpg">
+  <img src="every-weapon-used-by-phillip-graves-in-order-of-appearance-v0-k6564o4ehdnb1.jpg">
 </div>
 <br/><div align="center">
   
