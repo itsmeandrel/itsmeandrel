@@ -5,7 +5,7 @@
 </div>
 <br/><div align="center">
   
-[Straw](https://lady-sunbringer.straw.page)
+[Straw](https://aiku-oliver.straw.page)
 ; [Ata](https://andrez.atabook.org/)
 <br/><div align="center">
   
