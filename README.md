@@ -1,7 +1,7 @@
 
 
 <br/><div align="center">
-  <img src="https://media1.tenor.com/m/D_kH-8UDEyMAAAAC/blue-lock-oliver-aiku.gif">
+  <img src="https://github.com/itsmeandrel/itsmeandrel/blob/main/Untitled1979_20260814213141.png">
 </div>
 <br/><div align="center">
   
